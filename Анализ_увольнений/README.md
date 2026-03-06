@@ -1,1 +1,1 @@
-[анализ увольнений.pptx](https://github.com/user-attachments/files/25801664/default.pptx)
+[Документация.pdf](https://github.com/user-attachments/files/25801918/default.pdf)
